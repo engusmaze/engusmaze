@@ -1,1 +1,1 @@
-# Some genius game developer
+# Some guy
